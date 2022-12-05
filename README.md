@@ -19,9 +19,9 @@
 
 - 📫 How to reach me **abhinav636363@gmail.com**
 
-- 👨‍💻 All of my projects are available at [https://abhinav2407.github.io/]()
+- 👨‍💻 All of my projects are available at [Portfolio](https://abhinav2407.github.io/)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1dnv_nxZoJIq3eL2FSIBmTK-61x99rJNi/view?usp=sharing](https://drive.google.com/file/d/1dnv_nxZoJIq3eL2FSIBmTK-61x99rJNi/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1dnv_nxZoJIq3eL2FSIBmTK-61x99rJNi/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
